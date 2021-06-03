@@ -1,0 +1,2 @@
+Recipie:
+Mix powedered sugar and 2 eggs together with a whisk. Whip 2 cups cold heavy cream to medium peaks. With a spatula, fold half into the mascarpone mixture then fold in the remaining half until blended.Spread half of the cream over the first layer of ladyfingers. Dip the remaining ladyfingers and arrange over the cream. Spread on remaining cream. Cover and refrigerate overnight then dust with cocoa powder and serve.
